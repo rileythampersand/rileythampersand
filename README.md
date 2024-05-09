@@ -2,7 +2,7 @@
 - 👀 I’m interested in music production, video game development, cybersecurity, and funny novel stuff.
 - 🌱 I’m currently learning to make a web application.
 - 💞️ I’m looking to collaborate on whatever you think I'll enjoy being a part of. Don't be afraid to ask.
-- 📫 How to reach me: rrofficial0451@gmail.com, @rileys.nest on instagram
+- 📫 How to reach me: rrofficial0451@gmail.com, @rileythampersand on instagram
 - 😄 Pronouns: They/Them
 - ⚡ Fun fact: I have been playing video games since I could walk and I've put a few years into playing the guitar too.
 

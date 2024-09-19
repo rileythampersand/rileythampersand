@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to make a web application.
 - 💞️ I’m looking to collaborate on whatever you think I'll enjoy being a part of. Don't be afraid to ask.
 - 📫 How to reach me: rrofficial0451@gmail.com, @rileythampersand on instagram
-- 😄 Pronouns: They/Them
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: I have been playing video games since I could walk and I've put a few years into playing the guitar too.
 
 <!---
